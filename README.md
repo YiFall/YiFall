@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I am Chengjie Yi (伊承杰), a first-year Master's student at the MAC Lab of Xiamen University.
+
+Reach me at 23020241154468@stu.xmu.edu.cn.
